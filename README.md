@@ -33,7 +33,7 @@ I'm a **Software Developer & AI Enthusiast** from Sri Lanka, passionate about bu
 
 ## 📫 Contact Me
 - [LinkedIn](https://www.linkedin.com/in/ammaar-ilham/)  
-- [Email](mailto:your-email@example.com)  
+- [Email](mailto:ammaarilham2056@gmail.com)  
 
 ---
 
